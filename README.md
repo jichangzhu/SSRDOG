@@ -1,5 +1,5 @@
 # SSRDOG官网地址
-SSRDOG最新官网地址：[https://dog.ssrdog111.com/](https://c.jichangzhu.com/goto/ssrdog/)
+SSRDOG最新官网地址：[SSRDOG官网地址](https://c.jichangzhu.com/goto/ssrdog/)
 
 ## SSRDOG怎么样？
 
